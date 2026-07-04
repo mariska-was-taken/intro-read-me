@@ -8,3 +8,5 @@ tags i use a lot: w2i = whisper to interact, DNI = do not interact with me AT AL
 Please interact with me first, im a bit shy
 how do i make my github look cool
 this will get updated soon but yeah c: 
+
+I AM FLOWERY FROM DELTARUNE! and TM Opera O from Umamusume!
